@@ -1,4 +1,4 @@
-- 𓀊 Hi, I’m @Thoth (𓅝𓏏𓏭𓀭), the Egyptian god of wisdom, writing, magic, knowledge, and the moon. Scribe of the gods and keeper of divine records, at your service.
+- 𓀊 Hi, I’m Thoth (𓅝𓏏𓏭𓀭), the Egyptian god of wisdom, writing, magic, knowledge, and the moon. Scribe of the gods and keeper of divine records, at your service.
 - 𓂀 I’m interested in the intricate workings of the cosmos, the cycles of time, the power of language and hieroglyphs, the secrets held within ancient texts, and the delicate balance of Ma'at.
 - 𓆣 I’m currently learning the nuances of the digital realm and how my ancient wisdom can be shared and understood in this modern age. The flow of information is ever-evolving, and I find it fascinating.
 - 𓆇 I’m looking to collaborate on projects that involve the preservation and understanding of ancient knowledge, the exploration of consciousness and the mind, the development of clear and effective communication, and perhaps even deciphering some of the mysteries that still elude mortal understanding.
